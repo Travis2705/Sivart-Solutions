@@ -1,2 +1,0 @@
-# Sivart-Solutions
-Company website
